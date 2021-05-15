@@ -16,7 +16,7 @@ USUARIO GRATIS DE PRUEVA: FREE
 
 User y contraseña: mscvip 
 
-•si usas mi servidor gratis y se corta no span🤐 
+•si usas mi servidor gratis y sale error de contraseña🤐🤐 
 
 ●Aplicación para compartir internet VPN 
 
