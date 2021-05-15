@@ -1,4 +1,4 @@
-●🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰 
+●🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰
 
 Aplicación MSC INJECTOR 
 
@@ -16,11 +16,11 @@ USUARIO GRATIS DE PRUEVA: FREE
 
 User y contraseña: mscvip 
 
-•si usas mi servidor gratis y se corta no span🤐🤐🤐🤐🤐🤐🤐🤐🤐🤐🤐 
+•si usas mi servidor gratis y se corta no span
 
 ●Aplicación para compartir internet VPN 
 
 https://www.mediafire.com/file/5chpylf8et4749z/VPN_SHARE_.apk/file 
 
-●🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰
+●🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰🛰
 
